@@ -25,7 +25,8 @@ Soy estudiante de ingeniería civil industrial y data science en la Universidad 
 - 💙 Hace un par de años descubrí que mi área profesional de interés es el de Data Science & Machine Learning, y me gustaría desempeñarme en esta.
 - 🏋 Siempre me han apasionado los deportes, especialmente lo que es el gimnasio, el atletismo y el fútbol.
 - 🐕 Mi mayor sueño es armar una familia perruna y gatuna con mi pareja <3, actualmente tengo 3 perritas que viven con mi familia en otra región, y las amo con todo mi corazón.
-- 🕹️ También me gustan los videojuegos, hoy en día no juego pero por temas de tiempo, ya que también trabajo los fines de semana uwu.
+- 🕹️ También me gustan los videojuegos, hoy en día no juego pero por temas de tiempo, ya que también trabajo los fines de semana.
+- 🗿 Aguanten los memes de animalitos uwu.
 
 <br>
 <br>
